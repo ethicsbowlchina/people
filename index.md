@@ -2,7 +2,6 @@
 
 ### Director
 Leo Huang  
-
 leohuang501@hotmail.com  
 
 ### Executive Committee
